@@ -1,0 +1,2 @@
+# venkat website
+To be successful you have to use each day as an opportunity to improve to be better to get a little bit closer to your goals. It might sound like a lot of work and with a busy schedule, next to impossible. But the best part is the more you accomplish the more you will want to do the higher you’ll want to reach. So as long as you have the hunger for success you will always have the power within you to achieve it
